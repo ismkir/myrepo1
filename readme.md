@@ -1,0 +1,1 @@
+Saçmalık olsun diye ekledik
